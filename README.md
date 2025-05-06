@@ -1,2 +1,2 @@
 # consejo
-proyecto para el consejo escolar
+proyecto para el consejo dsadsadsasadasss
